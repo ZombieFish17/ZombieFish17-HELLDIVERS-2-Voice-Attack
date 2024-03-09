@@ -1,6 +1,4 @@
 **********CHANGE YOUR STRATEGEM TO ARROW KEYS AND LEFT CTRL IS SET TO HOLD IN KEY BINDINGS**********
-**********CHANGE YOUR STRATEGEM TO ARROW KEYS AND LEFT CTRL IS SET TO HOLD IN KEY BINDINGS**********
-**********CHANGE YOUR STRATEGEM TO ARROW KEYS AND LEFT CTRL IS SET TO HOLD IN KEY BINDINGS**********
 
 I have been working on a Hell Divers 2 Voice attack since I started Playing the game. I will spend more time creating a read me but all I will say for now is just say what you want in Voice Attack after you import the profile. I will spend more time polishing a better reales but for now I just want to get it out there. For Democracy. I have everything updated up to the Mech strategems. Have fun. 
 
