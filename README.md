@@ -6,10 +6,10 @@ I have been working on a Hell Divers 2 Voice attack since I started Playing the 
 
 Brief tutorial: Say call, call in a, call in, call down, I need, I need a, i need an, request, requesting, ses, support, ship, (Strategem name) or just the name of the strategem in various shortened ways of saying it. just paractice a line until it becomes natural to you.
 
-I have most support strategmes including mission call downs like drills and upload data missions for example.
+I have most support strategems including mission call downs like drills and upload data missions for example.
 
-There are some small ones like weapon 1-4 and saying things like OH SHIT!!!! will make you dive Stims are also a command as well.
+There are some small ones like weapon 1-4 and saying things like OH SHIT!!!! will make you dive. Stims (I need a stim) are also a command as well.
 
 I have have been slowly adding more to this overtime so any suggestions are appreciated.
 
-I would like to work more on this but have been too busy playing this game spreading democracy to work on it more and make it more official. I hope you understand
+I would like to work on this more but have been too busy playing this game spreading democracy and make it more official. I hope you understand. Iwill keep it updated as I go.
