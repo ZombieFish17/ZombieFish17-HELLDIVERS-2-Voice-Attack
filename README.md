@@ -12,4 +12,4 @@ There are some small ones like weapon 1-4 and saying things like OH SHIT!!!! wil
 
 I have have been slowly adding more to this overtime so any suggestions are appreciated.
 
-I would like to work more on this but have been too bust playing this game spreading democracy to work on it more and moake it more official. I hope you understand
+I would like to work more on this but have been too busy playing this game spreading democracy to work on it more and make it more official. I hope you understand
